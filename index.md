@@ -6,3 +6,6 @@
 ###### All in One
 
 This is all I can say about OpenSource
+
+
+![Image of a Happy little girl] (https://www.istockphoto.com/photo/happy-little-african-american-girl-blowing-a-flower-in-outside-cheerful-child-having-gm1439993254-480099497) 
